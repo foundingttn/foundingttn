@@ -17,6 +17,7 @@ $$ \color{#0e1116}{\text{e}}$$
 
 $$ \color{#0e1116}{\text{e}}$$
 
+&nbsp;<div align="center">
 meow 
 <img align="right" width="514" height="214" alt="erenyeager" src="https://github.com/user-attachments/assets/61d98070-67e8-476d-aeff-375ece89c2c4" />
 
