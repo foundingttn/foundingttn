@@ -34,6 +34,5 @@ sһі⍴s ᥴᥲᥒ іᥒ𝗍 ! ( ძᥒі ⍴r᥆sһі⍴s )
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=Mikasa+.+.+.;What+am+I+to+you+%3F;You're+.+.+.;You're+my+family+.+.+." alt="Typing SVG" /></a>
 <br>
 <img width="700" height="300" alt="eremika" src="https://github.com/user-attachments/assets/24a169f2-e92a-47ba-8a16-38b7e87b5de4" />
-
-&nbsp;<div align="center">
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=yzkqoxaoqc1w8lnb3kzl0j5tl&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=7e0707&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<br>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=yzkqoxaoqc1w8lnb3kzl0j5tl&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=7e0707&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
