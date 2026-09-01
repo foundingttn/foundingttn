@@ -33,11 +33,5 @@ sһі⍴s ᥴᥲᥒ іᥒ𝗍 ! ( ძᥒі ⍴r᥆sһі⍴s )
 &nbsp;<div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=Mikasa+.+.+.;What+am+I+to+you+%3F;You're+.+.+.;You're+my+family+.+.+." alt="Typing SVG" /></a>
 
-$$ \color{#0e1116}{\text{e}}$$
-
-$$ \color{#0e1116}{\text{e}}$$
-
-$$ \color{#0e1116}{\text{r}}$$
-
 &nbsp;<div align="center">
 <img width="400" height="200" alt="eremika" src="https://github.com/user-attachments/assets/24a169f2-e92a-47ba-8a16-38b7e87b5de4" />
