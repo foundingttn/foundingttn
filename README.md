@@ -20,4 +20,5 @@ $$ \color{#0e1116}{\text{e}}$$
 meow 
 <img align="right" width="514" height="214" alt="erenyeager" src="https://github.com/user-attachments/assets/61d98070-67e8-476d-aeff-375ece89c2c4" />
 
+&nbsp;<div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=Mikasa+.+.+.;What+am+I+to+you+%3F;You're+.+.+.;You're+my+family+.+.+." alt="Typing SVG" /></a>
