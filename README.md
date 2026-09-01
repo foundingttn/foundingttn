@@ -13,10 +13,21 @@ $$ \color{#0e1116}{\text{e}}$$
 
 $$ \color{#0e1116}{\text{n}}$$
 
-$$ \color{#0e1116}{\text{s}}$$
+$$ \color{#0e1116}{\text{n}}$$
 
 &nbsp;<div align="center">
-meow 
+꒷꒦꒷꒦꒷꒰ঌ𐂯໒꒱꒷꒦꒷꒦꒷
+<br>
+𝐚𝐬𝐚 𝐨𝐮 𝐞𝐫𝐞𝐧 ~
+<br>
+ᥴ+һ ᥱᥒᥴ᥆ᥙrᥲgᥱძ !
+<br>
+𝐝𝐧𝐢 𝟏𝟓 𝐚𝐧𝐝 𝐛𝐞𝐥𝐨𝐰
+<br>
+sһі⍴s ᥴᥲᥒ іᥒ𝗍 ! ( ძᥒі ⍴r᥆sһі⍴s )
+<br>
+✎﹏﹏﹏﹏
+
 <img align="right" width="514" height="214" alt="erenyeager" src="https://github.com/user-attachments/assets/61d98070-67e8-476d-aeff-375ece89c2c4" />
 
 &nbsp;<div align="center">
