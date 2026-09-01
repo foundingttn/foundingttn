@@ -7,13 +7,13 @@
 
 $$ \color{#0e1116}{\text{e}}$$
 
-$$ \color{#0e1116}{\text{e}}$$
+$$ \color{#0e1116}{\text{r}}$$
 
 $$ \color{#0e1116}{\text{e}}$$
 
-$$ \color{#0e1116}{\text{e}}$$
+$$ \color{#0e1116}{\text{n}}$$
 
-$$ \color{#0e1116}{\text{e}}$$
+$$ \color{#0e1116}{\text{s}}$$
 
 &nbsp;<div align="center">
 meow 
