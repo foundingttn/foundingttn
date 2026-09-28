@@ -2,37 +2,10 @@
 ![](https://komarev.com/ghpvc/?username=foundingttn&=true&color=000000&style=plastic&label=♡+(˶ˆᗜˆ˵)+freedom+slaves+♡+　+　)
 &nbsp;<div align="center">
 
-<img align="left" width="514" height="214" alt="mikasa" src="https://github.com/user-attachments/assets/1bda45bc-2e8f-4c31-8d7c-6ef773178f97" />
-&nbsp;<div align="left">
-
-$$ \color{#0e1116}{\text{e}}$$
-
-$$ \color{#0e1116}{\text{r}}$$
-
-$$ \color{#0e1116}{\text{e}}$$
-
-$$ \color{#0e1116}{\text{n}}$$
-
-$$ \color{#0e1116}{\text{n}}$$
-
+<img width="276" height="166" alt="Screenshot 2026-09-27 204431" src="https://github.com/user-attachments/assets/dbc8239a-0531-4028-9c36-6104e5d648c3" />
 &nbsp;<div align="center">
-꒷꒦꒷꒦꒷꒰ঌ𐂯໒꒱꒷꒦꒷꒦꒷
-<br>
-𝐚𝐬𝐚 𝐨𝐮 𝐞𝐫𝐞𝐧 ~
-<br>
-ᥴ+һ ᥱᥒᥴ᥆ᥙrᥲgᥱძ !
-<br>
-𝐝𝐧𝐢 𝟏𝟓 𝐚𝐧𝐝 𝐛𝐞𝐥𝐨𝐰
-<br>
-sһі⍴s ᥴᥲᥒ іᥒ𝗍 ! ( ძᥒі ⍴r᥆sһі⍴s )
-<br>
-✎﹏﹏﹏﹏
 
-<img align="right" width="514" height="214" alt="erenyeager" src="https://github.com/user-attachments/assets/61d98070-67e8-476d-aeff-375ece89c2c4" />
+${\color{#780606}ill  make  this  reiere  themed  sometime}$
 
-&nbsp;<div align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=Mikasa+.+.+.;What+am+I+to+you+%3F;You're+.+.+.;You're+my+family+.+.+." alt="Typing SVG" /></a>
-<br>
-<img width="700" height="300" alt="eremika" src="https://github.com/user-attachments/assets/24a169f2-e92a-47ba-8a16-38b7e87b5de4" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=yzkqoxaoqc1w8lnb3kzl0j5tl&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=7e0707&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
