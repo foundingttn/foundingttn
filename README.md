@@ -1,5 +1,5 @@
 &nbsp;<div align="center">
-![](https://komarev.com/ghpvc/?username=foundingttn&=true&color=000000&style=plastic&label=♡+(˶ˆᗜˆ˵)+freedom+slaves+♡+　+　)
+![](https://komarev.com/ghpvc/?username=foundingttn&=true&color=780606&style=plastic&label=♡+(˶ˆᗜˆ˵)+freedom+slaves+♡+　+　)
 &nbsp;<div align="center">
 
 <img width="276" height="166" alt="Screenshot 2026-09-27 204431" src="https://github.com/user-attachments/assets/dbc8239a-0531-4028-9c36-6104e5d648c3" />
