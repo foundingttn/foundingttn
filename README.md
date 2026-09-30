@@ -1,4 +1,6 @@
 &nbsp;<div align="center">
+minors dni im almost 19
+&nbsp;<div align="center">
 ![](https://komarev.com/ghpvc/?username=foundingttn&=true&color=780606&style=plastic&label=♡+(˶ˆᗜˆ˵)+freedom+slaves+♡+　+　)
 &nbsp;<div align="center">
 
